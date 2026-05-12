@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with advanced Automation for meme coin sniper bot | dex-sniping & buy-pressure-analysis, the #1 meme coin sniper bot. Includes dex-sniping and
 
 
 
